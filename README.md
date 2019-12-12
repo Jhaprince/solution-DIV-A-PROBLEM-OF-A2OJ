@@ -1,0 +1,1 @@
+# solution-DIV-A-PROBLEM-OF-A2OJ
